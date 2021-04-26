@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @puneethlegostar
+- 👋 Hi, I’m puneethlegostar
 - 👀 I’m interested in computers,hacking and gaming
 - 🌱 I’m currently learning ...class 12
 - 💞️ I’m looking to collaborate on ...learning hacking
